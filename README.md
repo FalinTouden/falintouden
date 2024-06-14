@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://i.imgur.com/A8Zt8dW.png">
-<br><br><b>► glitchy</b>/vash (<a href="https://en.pronouns.page/@Humanoid.Typhoon">+</a>) <img src="https://i.imgur.com/c5kHAAo.png" height="16px"> <img src="https://i.imgur.com/ZcBbkga.png" height="16px"> <img src="https://i.imgur.com/p3rYitx.png" height="16px"> <img src="https://i.imgur.com/hyf2v4w.png" height="16px"> they/it 
+<br><br><b>► vash</b>/cathy (<a href="https://en.pronouns.page/@Humanoid.Typhoon">+</a>) <img src="https://i.imgur.com/c5kHAAo.png" height="16px"> <img src="https://i.imgur.com/ZcBbkga.png" height="16px"> <img src="https://i.imgur.com/p3rYitx.png" height="16px"> <img src="https://i.imgur.com/hyf2v4w.png" height="16px"> they/it 
 <br><a href="https://vashstampede.straw.page">more about me</a> ― <a href=https://mxghoesting.straw.page>commission me!</a><br>
 <br><b>► whisper to interact</b>, i'm offtab a lot. i'm not very talkative 
 <br>i don't int first, but i am friendly
