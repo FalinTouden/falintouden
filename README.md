@@ -8,5 +8,6 @@
 <br><br><b>► i hide freely.</b> if you're weird/annoying you're gone
 <br>not ok with c+h unless we're friends or asked,
 <br><b>not a td/tt - just awkward for me </b>
+<br><br><img src="https://komarev.com/ghpvc/?username=falintouden&label= ✪ &color=7852A9&style=plastic">
 <br><br><img src="https://files.catbox.moe/pkflvv.gif" height="50px"> <img src="https://files.catbox.moe/8fg6h8.gif" height="50px">
 </p>
