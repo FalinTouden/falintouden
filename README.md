@@ -9,9 +9,10 @@
 <p><b>i'm not the most social person, especially with one on one conversations. i don't int first, but i am friendly</b>. i also hide freely, if you annoy me in any way or if you're just weird.</p>
   
 <p>I don't get on as much as i use to, but if you care, <b>my interests are Guilty gear, trigun, chiikawa, whatever else at the moment</b></p>
-<br>
-<p align="center"><sub>Say something to me -> <a href="https://cutevampires.atabook.org/">atabook</a></sub></p>
+
 
 <p align="center">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6410cb13-d07a-462c-82b5-e9382f96c743/djif9cj-4b7b27fe-932f-49ad-9328-d5ef3c948b35.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY0MTBjYjEzLWQwN2EtNDYyYy04MmI1LWU5MzgyZjk2Yzc0M1wvZGppZjljai00YjdiMjdmZS05MzJmLTQ5YWQtOTMyOC1kNWVmM2M5NDhiMzUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WlWnBOFgI0JBJwhyVXraGb_vBzKcXjmLCzw7RJOGyPE"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/51fec90a-4595-4a16-bd0d-56c713d52c1f/d55tehy-07afd85d-7094-4eb6-acf2-a0fb44278b0b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzUxZmVjOTBhLTQ1OTUtNGExNi1iZDBkLTU2YzcxM2Q1MmMxZlwvZDU1dGVoeS0wN2FmZDg1ZC03MDk0LTRlYjYtYWNmMi1hMGZiNDQyNzhiMGIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0._gHz5vKEJKXKhWzWjZgUUhbdImH7HhFd-9dnnRugigM">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ccf1833e-f36a-4f19-825b-d69605c40a29/d2zvodz-b6df5841-8d7d-4020-b063-b19137ce004d.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2NjZjE4MzNlLWYzNmEtNGYxOS04MjViLWQ2OTYwNWM0MGEyOVwvZDJ6dm9kei1iNmRmNTg0MS04ZDdkLTQwMjAtYjA2My1iMTkxMzdjZTAwNGQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Loj3nTIL6baQdErrtAW8ODv67GffnTGUhMi5gW9mIcM"> </p>
+<br>
+<p align="center"><sub>Say something to me -> <a href="https://cutevampires.atabook.org/">atabook</a></sub></p>
