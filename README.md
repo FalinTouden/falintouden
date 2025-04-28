@@ -6,7 +6,7 @@
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bc20df7c-8ea1-4e8d-98f1-1832f4748af5/dbrger6-bbba270a-6ca3-4b8a-a598-48a5368e7439.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JjMjBkZjdjLThlYTEtNGU4ZC05OGYxLTE4MzJmNDc0OGFmNVwvZGJyZ2VyNi1iYmJhMjcwYS02Y2EzLTRiOGEtYTU5OC00OGE1MzY4ZTc0MzkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Hu1UP1_kgyRk0r5C3r97FGsG718Meng1BauNYkmjjx4"</p> 
 <h3 align="center">cathy || vash ✦ they/it ✦ 19</h3>
 
-<p><b>i'm not the most social person, especially with one on one conversations. i don't int first, but i am friendly</b>. i also hide freely, if you annoy me in any way or if you're just weird.</p>
+<p><b>i'm not the most social person, especially with one on one conversations. SO i don't int first, but i am friendly</b>. i also hide freely, if you annoy me in any way or if you're just weird.</p>
   
 <p>I don't get on as much as i use to, but if you care, <b>my interests are Guilty gear, trigun, chiikawa, whatever else at the moment</b></p>
 
